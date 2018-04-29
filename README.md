@@ -1,1 +1,1 @@
-# itallmakesense.github.io
+# https://itallmakesense.github.io
